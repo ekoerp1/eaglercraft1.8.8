@@ -1,2 +1,2 @@
 # eaglercraft1.8.8
-Download htm and double click it 
+Download html and double click it it has single player now!!!
